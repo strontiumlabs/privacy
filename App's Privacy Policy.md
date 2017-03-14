@@ -1,4 +1,6 @@
 Privacy Policy
+
+
 This Privacy Policy describes your privacy rights in connection with our collection, use, disclosure, retention, and protection of your personal information.
 
 This Privacy Policy applies to our Application "Mewzik".
